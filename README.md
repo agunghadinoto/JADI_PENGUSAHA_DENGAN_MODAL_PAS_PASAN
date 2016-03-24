@@ -1,0 +1,2 @@
+# JADI_PENGUSAHA_DENGAN_MODAL_PAS_PASAN
+nuragha komunitas transaksi online
